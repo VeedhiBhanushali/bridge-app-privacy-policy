@@ -1,0 +1,1 @@
+# bridge-app-privacy-policy
